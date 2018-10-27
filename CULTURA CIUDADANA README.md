@@ -1,0 +1,6 @@
+# CULTURA-CIUDADANA
+##¿Cómo podemos rescatar y cultivar la ética de los ciudadanos?
+Educación ciudadana para vivir y convivir en armonía
+La exposición que plasmo en este artículo viene a ser un conjunto de reflexiones, que también me hago a mí mismo, en la idea de compartir lo mejor que poseo. La educación ciudadana para construir la paz y convivencia pacífica en nuestra sociedad, parten de la convicción de que el mundo actual evoluciona y cambia a una velocidad antes desconocida, por lo que educarnos y aprender constantemente es una necesidad, individual y social. En consecuencia, renovar contenidos y conocimiento del mundo, en especial de la sociedad peruana, hace necesaria la educación permanente para recargar el ánimo y la moral. Desgraciadamente, pese al avance de la tecnociencia, prosiguen las guerras y la violencia estructural de la cual no es ajeno el Perú. Actualizar y avivar el compromiso de educar en valores, en lo que compete construir paz y convivencia pacífica tiene que ser un compromiso y tarea que no debe perder vigencia, necesitándose el concierto de voluntades de ciudadanos y ciudadanas en la búsqueda de salidas a la violencia y la creciente percepción de inseguridad pública actual.
+##INTEGRANTES
+Jamis Leonardo Perdomo Quesada
